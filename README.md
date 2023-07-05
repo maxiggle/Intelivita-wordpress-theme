@@ -1,0 +1,1 @@
+# Intelivita-wordpress-theme
